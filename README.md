@@ -17,3 +17,6 @@ UCYT5040
 ##### and many more.
 
 ### I wont leave without memories of you.
+
+## Brook, sorry to leave you on a cliffhanger
+I can handle this myself.
